@@ -4,7 +4,7 @@ if you actually want to learn more, check out my website since I have everything
 do not hesitate to contact me, even for the dumbest things, I love yapping :P
 
 - 🌐 **my cool website:** https://leska.wtf/
-- 📬 **shoot me an email**: [me@leska.sh](mailto:me@leska.wtf)
+- 📬 **shoot me an email**: [me@leska.wtf](mailto:me@leska.wtf)
 - 🗨️ **yap with me on discord**: [justleska](https://discord.com/users/1179438971995037878)
 
 thanks for stopping by, it really means a lot ❤️.
