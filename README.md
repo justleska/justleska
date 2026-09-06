@@ -3,8 +3,8 @@
 if you actually want to learn more, check out my website, there's everything on there  
 do not hesitate to contact me, even for the dumbest things :D
 
-- 🌐 **my website:** offline
-- 📬 **shoot me an email**: offline
+- 🌐 **my website:** [lesk.zip](https://leska.zip)
+- 📬 **shoot me an email**: [me@leska.zip](mailto:me@leska.zip)
 - 🗨️ **private messages**: [justleska](https://discord.com/users/1179438971995037878)
 
 thanks for stopping by!
