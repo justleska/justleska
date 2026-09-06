@@ -9,4 +9,4 @@ do not hesitate to contact me, even for the dumbest things :D
 
 thanks for stopping by!
 
-![image](https://i.redd.it/mkv0oz8bgx0f1.jpeg)
+![image](https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcTzBNo-vbu8AlkV-VG1GAdLQDgi9QVOvsFbxfiklKblyHCkmxpu)
